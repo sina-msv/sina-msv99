@@ -1,5 +1,5 @@
 [README.md](https://github.com/user-attachments/files/28764651/README.md)
-# Hi there ?? I'm Sina Mousavi
+# Hi there, I'm Sina Mousavi
 
 ## About Me
 
